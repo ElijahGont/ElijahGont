@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on the ethical hacking
 - 📫 How to reach me: https://twitter.com/elijahgont
 - 😄 Pronouns: |eˈlaɪdʒə|
-- ⚡ Fun fact: I love dogs
+- ⚡ Fun fact: I'm crazy about Porshe 911
 
 <!---
 ElijahGont/ElijahGont is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
